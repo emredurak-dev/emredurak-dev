@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning Software Web Development and other programming languages
 
-- 📫 How to reach me *emredrk44@gmail.com*
+- 📫 How to reach me *emredurak1337@outlook.com*
   
 - 🚀 My Personel Website : Coming soon 👩🏻‍💻.
 
